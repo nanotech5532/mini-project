@@ -1,1 +1,1 @@
-abe ata pahu tu kay karshil 
+abe ata pahu tu kay karshil darling
